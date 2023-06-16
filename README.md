@@ -1,0 +1,2 @@
+# sorina
+sm sm zoom
